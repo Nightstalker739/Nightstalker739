@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Nightstalker739
 - 👀 I’m interested in animation
-- 🌱 I’m currently learning anmation
+- 🌱 I’m currently learning animation
 - 💞️ I’m looking to collaborate on animation
 - 📫 How to reach me call by phone
 
